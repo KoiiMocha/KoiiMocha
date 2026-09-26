@@ -1,3 +1,5 @@
-<img align="right" src="https://litter.catbox.moe/yvj3ntlcmasf31m7.png">
-Talk to me if you want to, I don't mind<br>I'll respond when I have time. Or not, it depends on my mood
-<br><br><a href="https://splittyy1.straw.page">StrawPage</a> // <a href="https://rentry.co/splittyy1">Rentry</a> // <a href="https://splittyy1.atabook.org">Atabook</a>
+<img src="https://imglink.cc/cdn/v65Yr1uEzY.png">
+KoiiMocha
+<br>;; 17/5, female, She/Her, minor, ambivert, ENTP, 9w8
+<img src="https://imglink.cc/cdn/sVi6S5Kkbc.png" /><img src="https://imglink.cc/cdn/mzDcCGPqow.png" /><img src="https://imglink.cc/cdn/2RneVFrvcj.png" />
+<a href="https://splittyy1.straw.page">StrawPage</a> // <a href="https://rentry.co/splittyy1">Rentry</a> // <a href="https://splittyy1.atabook.org">Atabook</a>
