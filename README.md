@@ -1,6 +1,6 @@
 <img src="https://imglink.cc/cdn/v65Yr1uEzY.png">
 <p align="center">KoiiMocha </p>
-<p align="center">;; female, She/Her, minor, 17/5, ambivert, ENTP </p>
+<p align="center">;; female, She/Her, minor, 17/5, ambivert, ENTP, 4w5 </p>
 <!-- HTML Structure -->
 <div align="center">
   <img src="https://imglink.cc/cdn/sVi6S5Kkbc.png">
