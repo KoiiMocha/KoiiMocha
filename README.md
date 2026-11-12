@@ -4,7 +4,7 @@
 <!-- HTML Structure -->
 <div align="center">
   <img src="https://imglink.cc/cdn/zSp1thDwMP.png">
-  <img src="https://imglink.cc/cdn/9wKzqSUyy_.png">
+  <img src="https://imglink.cc/cdn/YcEcxBFmf6.png">
   <img src="https://imglink.cc/cdn/LEWS9Ws9mK.png">
 </div>
 <p align="center"><a href="https://splittyy1.straw.page">StrawPage</a>&nbsp;&nbsp;//&nbsp;&nbsp;<a href="https://rentry.co/splittyy1">Rentry</a>&nbsp;&nbsp;//&nbsp;&nbsp;<a href="https://splittyy1.atabook.org">Atabook</a></p>
