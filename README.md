@@ -8,3 +8,4 @@
   <img src="https://imglink.cc/cdn/BbKI19Zk8r.png">
 </div>
 <p align="center"><a href="https://splittyy1.straw.page">StrawPage</a>&nbsp;&nbsp;//&nbsp;&nbsp;<a href="https://rentry.co/splittyy1">Rentry</a>&nbsp;&nbsp;//&nbsp;&nbsp;<a href="https://splittyy1.atabook.org">Atabook</a></p>
+<br><br><br><br><br><p align="center">Art credits: Art by @CiloRanko (TrNyteal) (1st stamp), art by @twcloudman (飞机云君) (2nd stamp), & art by @matchach (3rd stamp)</p>
