@@ -1,6 +1,6 @@
 <img src="https://imglink.cc/cdn/dYjTx7Mkb7.png" align="left" alt="Profile Image">
 <p align="center">꒰ა .✦ ݁˖&nbsp;&nbsp;KoiiMocha&nbsp;&nbsp;⊹ ࣪ ˖ ໒꒱</p>
-<p align="center">── ⟡&nbsp;&nbsp;Female,&nbsp;&nbsp;She/Her,&nbsp;&nbsp;minor&nbsp;&nbsp;✿<br>17/5,&nbsp;&nbsp;ENTP,&nbsp;&nbsp;𓎢𓎡&nbsp;&nbsp;4w5&nbsp;&nbsp;♪&nbsp;&nbsp;( ˶ˆᗜˆ˵ )</p>
+<p align="center">── ⟡&nbsp;&nbsp;Female,&nbsp;&nbsp;She/Her,&nbsp;&nbsp;minor&nbsp;&nbsp;✿<br>17/5,&nbsp;&nbsp;𓎢𓎡&nbsp;&nbsp;ENTP,&nbsp;&nbsp;4w5&nbsp;&nbsp;♪&nbsp;&nbsp;( ˶ˆᗜˆ˵ )</p>
 <!-- HTML Structure -->
 <div align="center">
   <img src="https://imglink.cc/cdn/y5DKjvrFIP.png">
